@@ -1,1 +1,1 @@
-https://github.com/GARUVER/ono-tebe-nado-fd#
+https://github.com/GARUVER/ono-tebe-nado-fd
